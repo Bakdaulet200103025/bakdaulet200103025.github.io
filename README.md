@@ -1,0 +1,1 @@
+# bakdaulet200103025.github.io
